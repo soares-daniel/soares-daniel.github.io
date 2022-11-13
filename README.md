@@ -1,1 +1,0 @@
-# soares-daniel.github.io
